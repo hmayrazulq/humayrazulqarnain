@@ -6,6 +6,31 @@ I'm Humayra' binti Zulqarnain and I'm currently studying in my Bachelor of Compu
 ---
 
 ## Education
-- Bachelor of Computer Science (Data Engineering) with Honours at UTM Johor Bahru
-- Completed Foundation in Physical Science at UTM Johor Bahru
-- Finised school in SBPI Sabak Bernam & SK Taman Selasih
+- University of Technology Malaysia (UTM) Johor Bahru (2025 - Present)
+  - Course: Bachelor of Computer Science (Data Engineering) with Honours
+  
+- Foundation in Physical Science at UTM Johor Bahru (2024 - 2025)
+  - Course: Physical Sciences
+  - CGPA: 3.79
+  - MUET SCORE: 4.5
+  
+- SBPI Sabak Bernam (2019 - 2023)
+  - Course: Religious Sciences
+  - SPM: 8As
+
+- SK Taman Selasih
+  - UPSR: 6As
+
+## Positions
+- SBPI Sabak Bernam
+  - Vice President I of Librarian (2023)
+  - President of the English Language Society (2023)
+  - Vice President of Fire Cadets (2023)
+  - Committee Member of The English Language Society (2022)
+  - Committee Member of Fire Cadets (2021)
+  - Librarian (2020 - 2023)
+ 
+## Involvement
+- Gold Award for Sabak Bernam International Innovation Competition (SABIIC 2022)
+- Participated and won first runner-up in Pertandingan Resensi Buku Peringkat Sekolah 2022 (Book Review)
+- 13th place in MSSD Merentas Desa Sabak Bernam 2022
