@@ -2,6 +2,7 @@
 
 Hi!
 I'm Humayra' binti Zulqarnain and I'm currently studying in my Bachelor of Computer Science (Data Engineering) with Honours degree.
+I am eager to learn about new things especially regarding SQL, new programming languages, AI, or anything related to computer science majors!
 
 ---
 
@@ -31,6 +32,9 @@ I'm Humayra' binti Zulqarnain and I'm currently studying in my Bachelor of Compu
   - Librarian (2020 - 2023)
  
 ## Involvement
+- Participated in College Parade & Volleyball in UTM Games 2025
+- Safety Unit for FESKO'69
+- 1st Place in UNBOCS Run 2024
 - Gold Award for Sabak Bernam International Innovation Competition (SABIIC 2022)
-- Participated and won first runner-up in Pertandingan Resensi Buku Peringkat Sekolah 2022 (Book Review)
+- First Runner-up in Pertandingan Resensi Buku Peringkat Sekolah 2022 (Book Review)
 - 13th place in MSSD Merentas Desa Sabak Bernam 2022
