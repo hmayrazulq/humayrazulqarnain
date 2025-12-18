@@ -38,3 +38,10 @@ I am eager to learn about new things especially regarding SQL, new programming l
 - Gold Award for Sabak Bernam International Innovation Competition (SABIIC 2022)
 - First Runner-up in Pertandingan Resensi Buku Peringkat Sekolah 2022 (Book Review)
 - 13th place in MSSD Merentas Desa Sabak Bernam 2022
+
+- Universiti Teknologi Malaysia
+  - Volleyball and Parade (Perbarisan) Athlete in UTMGAMES 2025
+  - Safety Unit for FESKO'69
+  - Activity Unit for SUSKOM'25
+  - Registration Unit for CODE'26
+-
