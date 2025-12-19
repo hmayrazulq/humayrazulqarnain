@@ -32,16 +32,12 @@ I am eager to learn about new things especially regarding SQL, new programming l
   - Librarian (2020 - 2023)
  
 ## Involvement
-- Participated in College Parade & Volleyball in UTM Games 2025
+- Volleyball and Parade (Perbarisan) Athlete in UTMGAMES 2025
 - Safety Unit for FESKO'69
 - 1st Place in UNBOCS Run 2024
+- Activity Unit for SUSKOM'25
+- Registration Unit for CODE'26
+
 - Gold Award for Sabak Bernam International Innovation Competition (SABIIC 2022)
 - First Runner-up in Pertandingan Resensi Buku Peringkat Sekolah 2022 (Book Review)
 - 13th place in MSSD Merentas Desa Sabak Bernam 2022
-
-- Universiti Teknologi Malaysia
-  - Volleyball and Parade (Perbarisan) Athlete in UTMGAMES 2025
-  - Safety Unit for FESKO'69
-  - Activity Unit for SUSKOM'25
-  - Registration Unit for CODE'26
--
