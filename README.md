@@ -33,11 +33,14 @@ I am eager to learn about new things especially regarding SQL, new programming l
  
 ## Involvement
 - Volleyball and Parade (Perbarisan) Athlete in UTMGAMES 2025
+- Hiking at Bukit TIS with Kelab PEMBINA
 - Safety Unit for FESKO'69
 - 1st Place in UNBOCS Run 2024
 - Activity Unit for SUSKOM'25
 - Registration Unit for CODE'26
+- Activity unit for Kelab Usahawan Treasure Hunt Explorace
 
 - Gold Award for Sabak Bernam International Innovation Competition (SABIIC 2022)
 - First Runner-up in Pertandingan Resensi Buku Peringkat Sekolah 2022 (Book Review)
 - 13th place in MSSD Merentas Desa Sabak Bernam 2022
+- Top 10 for 2022 and 2023 Merentas Desa Peringkat Sekolah
