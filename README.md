@@ -36,6 +36,8 @@ I am eager to learn about new things especially regarding SQL, new programming l
 - Hiking at Bukit TIS with Kelab PEMBINA
 - Safety Unit for FESKO'69
 - 1st Place in UNBOCS Run 2024
+- 4th Place in CODE'26 Explorace
+- Participant in Code Create Connect '25 Programme (CCC'25)
 - Activity Unit for SUSKOM'25
 - Registration Unit for CODE'26
 - Activity unit for Kelab Usahawan Treasure Hunt Explorace
